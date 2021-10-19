@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @s0mestudent
+- 👀 I’m interested in wild hacking events
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on fun projects
